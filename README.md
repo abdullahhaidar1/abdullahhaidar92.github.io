@@ -1,1 +1,0 @@
-# abdullahhaidar92.github.io
